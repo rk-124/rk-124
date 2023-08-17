@@ -1,4 +1,3 @@
-<img src='[https://randommeme-five.vercel.app/](https://cdn.statically.io/img/timelinecovers.pro/facebook-cover/download/programmer-a-tool-for-converting-facebook-cover.jpg)' />
 # 💫 About Me:
 I am a go-getter with a positive outlook on life. I am a very driven individual who is always looking for new opportunities and ways to better myself.
 
